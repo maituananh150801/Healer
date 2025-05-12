@@ -12,7 +12,7 @@ Email Me 👉 ✉️ **** For Collaboration/Project or Anything Else. 😊😊
 - 😄 **Pronouns:**  Sir
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
-## 🔗 I am a Content Creator. 😊😊
+## 🔗 I am a Software Engineer. 😊😊
 
 Stay updated with the latest tutorials and projects by subscribing to my YouTube channel and following on Instagram, Facebook and Twitter.
 
